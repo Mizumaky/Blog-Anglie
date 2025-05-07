@@ -33,20 +33,19 @@
 ### Den 2
 - vydali jsme se k [Queen Elizabeth Olympic Park](https://maps.app.goo.gl/FCUwA9S9URC5mcb4A) jelikož tam měla zuzanka poblíž tetování, tak jsem se mezitím procházel
 	- v něm je zajímavý např. [Zip World London](https://maps.app.goo.gl/AJ3i43W2SKe4CWqt5) - vyhlídková věž se skluzavkou až dolů :D dobrej zážitek
-	- a potom podél těch kanálů např River Lee, nebo i v tom parku tam jsou fajn procházky, jinak Stratford jako čtvrť a budovy takový nic moc
-	- v parku, nebo i jinde v londýně se dá jinak půjčit ze stanic od TfL kolo 
-	- zajímavý by možná mohl být např. i Victoria Park ale tam jsme nebyli
-	- nebo je tam pak ta ABBA Arena
+	- podél těch kanálů a v parku fajn procházka, ale jinak Stratford jako čtvrť a budovy takový nic moc
+	- dalo se tam (i jinde v Londýně) jinak půjčit ze stanic od TfL kolo 
+	- zajímavý by možná mohl být např. i Victoria Park ale tam jsme nebyli, nebo je tam pak ta [ABBA Arena](https://maps.app.goo.gl/x4qAGjYL7WLjbrXZA)
 - pak jsme se vydali přes London Bridge - je z něj vidět na loď [HMS Belfast](https://maps.app.goo.gl/4HHzh4CgxA7hwq5Z7) a Tower Bridge :3
 - šli jsme do [Borough Market](https://maps.app.goo.gl/x1FLKkssxiSUKxjL8) - což je takový pěkný schovaný market v podloubí, vypadal zajímavě ale před nosem nám sklízeli stánky 😢 (mají jen do 17:00)
 - prošli jsme kolem Tate Modern a přešli přes [Millenium Bridge](https://maps.app.goo.gl/NUPmTE5ANArTFPg5A) - mosty obecně jsou tam super :3
 - tam se dá pak dojít do [St. Paul's Cathedral](https://maps.app.goo.gl/ihjGGUwQSFZLDt4n6) kde jsme oba kdysi byli, a moc pěkná budova i zevnitř
 - závěr jsme si dali zas do chinatown jelikož jsme chtěli do jedné takové hodně autentické japonské [Tokyo Diner](https://maps.app.goo.gl/w1vV8tu46YoZWRs97), byli tam japonci a např nepřijímali ani dýška dle japonské zvyklosti :3
 ### Den 3
-- výlet vlakem do [Margate](https://maps.app.goo.gl/8D9FDSebuXE2XZ2s5) - jeli jsme tam kvuli Crab Museum, nakonec tam bylo vicero zajimavych atrakci, a zabavili jsme se pekne, kazdopadnne hodne drahy vylet :D 
+- výlet vlakem do [Margate](https://maps.app.goo.gl/8D9FDSebuXE2XZ2s5) - jeli jsme tam kvuli Crab Museum, nakonec tam bylo vicero zajimavych atrakci, a zabavili jsme se pekne, kazdopadnne hodne drahy vylet kvuli vlaku :D 
 ### Den 4
 - metrem jsme jeli směr Epping, vystoupili na Theydon Bois, a udělali si krátký výlet v [Epping Forest](https://maps.app.goo.gl/RXTn34GhQt7y8HcN9) - je to prostě velký les, tak jsme si tam alespon oddychli od ruchu města :D
-- v Eppingu (taková vesnice už :D) jsme si dali kafco a dál pokračovali busem do Harlow
+- v Eppingu (taková vesnice už :D) jsme si dali kafčo a dál pokračovali busem do Harlow
 - a v Harlow jsme přestoupil na bus už rovnou na Stansted
 
 ## Co jsme měli dále v seznamu
