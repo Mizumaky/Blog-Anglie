@@ -60,4 +60,4 @@
 - [Walthamstow Pumphouse Museum](https://maps.app.goo.gl/juRScFTrEwFBxiu5A) 
 
 ---
-Všechny zmíněná místa v seznamu: https://maps.app.goo.gl/Sk8wypLCJEEuc6qe8
+Všechny zmíněná místa v [Google Maps seznamu](https://maps.app.goo.gl/Sk8wypLCJEEuc6qe8)
